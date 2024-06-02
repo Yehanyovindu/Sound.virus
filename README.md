@@ -6,8 +6,8 @@ src="https://telegra.ph/file/3d019d7675687c2a05080.jpg"  width="700px">
 
 ## CONTACT OWNER
 
-[![badyovi](https://telegra.ph/file/3d019d7675687c2a05080.jpg)](https://wa.me/94773883257@s.whatsapp.net)
+[![badyovi](https://telegra.ph/file/708362a8723ec1dde1d0e.jpg)](https://wa.me/94773883257@s.whatsapp.net)
 
 ## JOIN SUPPORT GROUP
 
-[![badyovi](https://telegra.ph/file/3d019d7675687c2a05080.jpg)](https://chat.whatsapp.com/KrZzaVMBU10LDhRgc9GyAz)
+[![badyovi](https://telegra.ph/file/79f4e37ca5a5d219699b1.jpg)](https://chat.whatsapp.com/KrZzaVMBU10LDhRgc9GyAz)
