@@ -5,5 +5,4 @@ src="https://telegra.ph/file/3d019d7675687c2a05080.jpg"  width="700px">
 
 ## MY WA CHANNEL
 
-[![vajira]
-(https://chat.whatsapp.com/KrZzaVMBU10LDhRgc9GyAz)
+[![badyovi](https://chat.whatsapp.com/KrZzaVMBU10LDhRgc9GyAz)
