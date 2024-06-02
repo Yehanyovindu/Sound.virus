@@ -6,7 +6,7 @@ src="https://telegra.ph/file/3d019d7675687c2a05080.jpg"  width="700px">
 
 ## CONTACT OWNER
 
-[![badyovi](https://telegra.ph/file/708362a8723ec1dde1d0e.jpg)](https://wa.me/94773883257/text=Hi_hacker_Yovi@s.whatsapp.net)
+[![badyovi](https://telegra.ph/file/708362a8723ec1dde1d0e.jpg)](https://wa.me/94773883257?text=_hi_hacker_Yovi@s.whatsapp.net)
 
 ## JOIN SUPPORT GROUP
 
