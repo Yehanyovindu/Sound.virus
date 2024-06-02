@@ -2,7 +2,6 @@
 <a href="https://github.com/Yehanyovindu">
     <img 
 src="https://telegra.ph/file/3d019d7675687c2a05080.jpg"  width="700px">
-<b><details><summary>𝗦𝗢𝗖𝗜𝗔𝗟 𝗧𝗬𝗣𝗘𝗦</summary><br>
 
 ## CONTACT OWNER
 
